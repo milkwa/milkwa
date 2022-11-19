@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @milkwa
-- 👀 I’m interested in sports & music
+- 👀 I’m interested in sports, music & videogames
 - 🌱 I’m currently learning german & spanish
 - 💞️ I’m looking to collaborate on (prolly) drawing
 - 📫 How to reach me [discord]--> муσкσツ#5201
